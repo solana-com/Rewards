@@ -1,0 +1,1 @@
+# coins-SOLANA-free
